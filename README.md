@@ -1,4 +1,4 @@
-### Eu sou o Antonio Ricardo 👋 😄 
+### Eu sou o Antonio Ricardo  
 
 [![YouTube](https://img.shields.io/badge/YouTube-FF0000?style=for-the-badge&logo=youtube&logoColor=white)](https://www.youtube.com/@antonioricardomachadodasil1383/about)
 
